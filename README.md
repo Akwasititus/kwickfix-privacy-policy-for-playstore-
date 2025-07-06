@@ -1,0 +1,1 @@
+# kwickfix-privacy-policy-for-playstore-
